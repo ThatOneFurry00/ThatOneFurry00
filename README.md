@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ThatOneFurry00
+- 👀 I’m interested in ... Anything to do with BATCH files.
+- 🌱 I’m currently learning ... I'm mostly learning BATCH, I do a little lua, java, from here and there.
+- 💞️ I’m looking to collaborate on ... Nothing. I do not to collabs
+- 📫 How to reach me ... You can reach me at silasconrad33@gmail.com. (I dont check my email regularly.)
